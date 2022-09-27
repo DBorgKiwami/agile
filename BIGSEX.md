@@ -1,0 +1,3 @@
+WOOOOOOOOOOOOOOOOOOO, 2005 THE YEAR OF THE GAMER, WOOOOOO
+
+Ctrl+Alt+Del (CAD) is a gaming-related webcomic[1] and animated series written by Tim Buckley. The name of the comic refers to the Windows command Control-Alt-Delete.[2] Premiering on October 23, 2002, the comic's focus has gradually shifted away from single strip gags towards longer story arcs and greater continuity through the use of video game references. Ctrl+Alt+Del currently is updated every Monday, Wednesday and Friday.
